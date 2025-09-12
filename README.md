@@ -1,4 +1,4 @@
-<p align = "center">' cumbersomeㅤandㅤheavy,ㅤtiredㅤofㅤthisㅤbody '</p><br/>
+<p align = "center">' życieㅤtoㅤstekㅤbzdur,ㅤzㅤtymㅤżeㅤjaㅤpoproszęㅤkrwisty '</p><br/>
 
 <p align = "center">
 <img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&label=♡"/>
