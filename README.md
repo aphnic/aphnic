@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align = "center">' cumbersomeㅤandㅤheavy,ㅤtiredㅤofㅤthisㅤbody '</p><br/>
 
-<!--
-**soasp/soasp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align = "center">
+<img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&label=♡"/>
+</p>
 
-Here are some ideas to get you started:
+<p align = "center">
+<img src="https://file.garden/Z1SZxHBTpxsvkwdR/8b09ff9dd07fbb518473d0e92b6400d4-removebg-preview.png"/>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<a href="https://rentry.co/aphonic">rentry</a> ㅤ
+<a href="https://mafios.straw.page">straw</a> ㅤ
+<a href="https://soap.atabook.org">ata</a> ㅤ
+<a href="https://pronouns.cc/@soasp">prns.cc</a> ㅤ
+<a href="https://guns.lol/ennis">discord</a>
