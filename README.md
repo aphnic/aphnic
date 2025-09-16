@@ -16,4 +16,4 @@
 <a href="https://mafios.straw.page">straw</a> ㅤ
 <a href="https://soap.atabook.org">ata</a> ㅤ
 <a href="https://pronouns.cc/@soasp">prns.cc</a> ㅤ
-<a href="https://guns.lol/ennis">discord</a>
+<a href="https://aphnic.carrd.co/">carrd</a>
