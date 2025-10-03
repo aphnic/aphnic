@@ -14,5 +14,4 @@
 <p align="center">
 <a href="https://rentry.co/aphonic">rentry</a> ㅤ
 <a href="https://mafios.straw.page">straw</a> ㅤ
-<a href="https://soap.atabook.org">ata</a> ㅤ
-<a href="https://pronouns.cc/@soasp">prns.cc</a> ㅤ
+<a href="https://soap.atabook.org">ata</a>
