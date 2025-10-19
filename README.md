@@ -10,7 +10,7 @@
 <a href="https://soap.atabook.org">ata</a>
 
 <p align = "center">
-<img src="https://media.giphy.com/media/LSvjgzELEO5hOZiJfv/giphy.gif" height="150%" width="150%"/>
+<img src="https://media.giphy.com/media/LSvjgzELEO5hOZiJfv/giphy.gif" height="100%" width="100%"/>
 </p>
 
 <p align = "center">
