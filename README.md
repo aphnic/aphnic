@@ -4,7 +4,7 @@
 <img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&style=plastic&label=♡"/>
 </p>
 
-### **ANGEL　EYES　TO　FALL　APART　AND　PAY　THE　PRICE**
+### **<ins>ANGEL</ins>　EYES　TO　FALL　<ins>APART</ins>　AND　PAY　THE　<ins>PRICE</ins>**
 <br/>
 
 gr**av**es　　ou　　isa*ac*<br/>
@@ -13,7 +13,7 @@ he　　him
 c　+　**h**　　always　*!*<br/>
 i　<ins>blo</ins>ck　/　hid*e*　**fre**ely
 #### cod　area　&　either　alone　or　sitting　with　[@muravium](https://github.com/muravium)　!　<sub><sub>hi silly i heart you /p</sub></sub>
-### **WOULD　YOU　LIKE　THE　LAZY　LINE　CONTRITE　NIGHT?**
+### **WOULD　YOU　LIKE　<ins>THE</ins>　LAZY　LINE　CONTRITE　<ins>NIGHT?</ins>**
 
 #### [RENTRY](https://rentry.co/aphonic)　　[SP](https://mafios.straw.page/)　　[ATA](https://soap.atabook.org/)
 
