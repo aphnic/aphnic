@@ -1,14 +1,15 @@
 <div id="text" align="center">
 
-<p align = "center">
-<img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&style=plastic&label=♡"/>
-</p>
 
 ### **<ins>ANGEL</ins>　EYES　TO　FALL　<ins>APART</ins>　AND　PAY　THE　<ins>PRICE</ins>**
 <br/>
 
 gr**av**es　　ou　　isa*ac*　　<sub>occasionally　bravo　0-6　/　price</sub><br/>
 he　　him
+
+<p align = "center">
+<img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&style=plastic&label=♡"/>
+</p>
 
 c　+　**h**　　always　*!*<br/>
 i　<ins>blo</ins>ck　/　hid*e*　**fre**ely
