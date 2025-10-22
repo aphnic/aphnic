@@ -13,7 +13,7 @@ gr**av**es　　ou　　isa*ac*　　<sub>occasionally　bravo　0-6　/　price
 
 c　+　**h**　　always　*!*<br/>
 i　<ins>blo</ins>ck　/　hid*e*　**fre**ely
-#### cod　area　&　either　alone　or　sitting　with　[@muravium](https://github.com/muravium)　!　<sub><sub>hi silly i heart you /p</sub></sub>
+#### <ins>co</ins>d　ar*ea*　&　either　al*o*ne　or　<ins>sitt</ins>ing　with　[@muravium](https://github.com/muravium)　!　<sub><sub>hi silly i heart you /p</sub></sub>
 ### **WOULD　YOU　LIKE　<ins>THE</ins>　LAZY　LINE　CONTRITE　<ins>NIGHT?</ins>**
 
 #### [RENTRY](https://rentry.co/aphonic)　　[SP](https://mafios.straw.page/)　　[ATA](https://soap.atabook.org/)
