@@ -7,7 +7,7 @@
 ### **<ins>ANGEL</ins>　EYES　TO　FALL　<ins>APART</ins>　AND　PAY　THE　<ins>PRICE</ins>**
 <br/>
 
-gr**av**es　　ou　　isa*ac*<br/>
+gr**av**es　　ou　　isa*ac*　　<sub>occasionally　bravo　0-6　/　price</sub><br/>
 he　　him
 
 c　+　**h**　　always　*!*<br/>
