@@ -5,7 +5,7 @@
 <br/>
 
 gr**av**es　/　phillip　　ou　　isa*ac*　　<sub>occasionally　bravo　0-6　/　price</sub><br/>
-*he*　　him
+<sup><sup>or just call me by my pony's name, ok..?</sup></sup>　　*he*　　him
 
 <p align = "center">
 <img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&style=plastic&label=♡"/>
