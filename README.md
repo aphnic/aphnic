@@ -4,7 +4,7 @@
 ### **<ins>ANGEL</ins>　EYES　TO　FALL　<ins>APART</ins>　AND　PAY　THE　<ins>PRICE</ins>**
 <br/>
 
-gr**av**es　/　phillip　　ou　　isa*ac*　　<sub>occasionally　bravo　0-6　/　price</sub><br/>
+gr**av**es　/　phillip　　ou　　isa*ac*　　<sub>simon　works　just　fine　too</sub><br/>
 <sup><sup>or just call me by my pony's name, ok..?</sup></sup>　　*he*　　him
 
 <p align = "center">
