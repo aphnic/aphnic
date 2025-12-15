@@ -8,7 +8,7 @@
 <img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&style=plastic&label=♡"/>
 </p>
 
-#### [RENTRY](https://rentry.co/aphonic)　　[SP](https://mafios.straw.page/)　　[ATA](https://soap.atabook.org/)　　[TREE](https://colormytree.me/2025/01KBFWHZSJQBCFH3PZ7386X96Y)
+#### [RENTRY](https://rentry.co/aphonic)　　[SP](https://aphonic.straw.page/)　　[ATA](https://soap.atabook.org/)　　[TREE](https://colormytree.me/2025/01KBFWHZSJQBCFH3PZ7386X96Y)
 
 <p align = "center">
 <img src="https://media.giphy.com/media/LSvjgzELEO5hOZiJfv/giphy.gif" height="100%" width="100%"/>
