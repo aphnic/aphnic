@@ -11,7 +11,7 @@
 #### [RENTRY](https://rentry.co/aphonic)　　[SP](https://aphonic.straw.page/)　　[ATA](https://soap.atabook.org/)　　[REVO](https://revospring.net/mace)
 
 <p align = "center">
-<img src="https://i.pinimg.com/originals/41/08/5f/41085f16168203bb99ad0963bde537b3.gif" height="80%" width="80%"/>
+<img src="https://i.pinimg.com/originals/1e/4c/e7/1e4ce791b4c03ae086aa68f799713d5c.gif" height="80%" width="80%"/>
 </p>
 
 <p align = "center">
