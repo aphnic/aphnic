@@ -1,7 +1,7 @@
 <div id="text" align="center">
 
 
-### **<ins>ANGEL</ins>　EYES　TO　FALL　<ins>APART</ins>　AND　PAY　THE　<ins>PRICE</ins>**
+### **MY　<ins>MOON</ins>　MY　MOON,　MY　<ins>MAN</ins>**
 <br/>
 
 <p align = "center">
@@ -11,10 +11,8 @@
 #### [RENTRY](https://rentry.co/aphonic)　　[SP](https://aphonic.straw.page/)　　[ATA](https://soap.atabook.org/)　　[REVO](https://revospring.net/mace)
 
 <p align = "center">
-<img src="https://media.giphy.com/media/LSvjgzELEO5hOZiJfv/giphy.gif" height="100%" width="100%"/>
+<img src="https://i.pinimg.com/originals/41/08/5f/41085f16168203bb99ad0963bde537b3.gif" height="80%" width="80%"/>
 </p>
 
 <p align = "center">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mvmvjffk4diyl4atq5fpynirli&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0c0c0c&interchange=false&profanity=false&bar_color=b5b5b5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"/>
-
-### **WOULD　YOU　LIKE　<ins>THE</ins>　LAZY　LINE　CONTRITE　<ins>NIGHT?</ins>**
