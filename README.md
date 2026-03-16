@@ -1,17 +1,18 @@
 <div id="text" align="center">
 
 
-### **MY　<ins>MOON</ins>　MY　MOON,　MY　<ins>MAN</ins>**
+### **don't　<ins>you</ins>　want　to?**
+<sup>don't　you　want　to　be　the　<ins>one?</ins></sup>
 <br/>
 
 <p align = "center">
 <img src="https://komarev.com/ghpvc/?username=soasp&color=lightgrey&style=plastic&label=♡"/>
 </p>
 
-#### [RENTRY](https://rentry.co/aphonic)　　[SP](https://aphonic.straw.page/)　　[ATA](https://soap.atabook.org/)　　[REVO](https://revospring.net/mace)
+#### [rentry](https://rentry.co/aphonic)　　[sp](https://aphonic.straw.page/)　　[ata](https://soap.atabook.org/)　　[revo](https://revospring.net/mace)
 
 <p align = "center">
-<img src="https://i.pinimg.com/originals/1e/4c/e7/1e4ce791b4c03ae086aa68f799713d5c.gif" height="80%" width="80%"/>
+<img src="https://file.garden/Z1SZxHBTpxsvkwdR/Untitled101_20260316220704-Photoroom.png" height="30%" width="30%"/>
 </p>
 
 <p align = "center">
