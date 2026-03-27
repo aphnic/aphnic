@@ -1,4 +1,12 @@
 <div id="text" align="center">
+hall of shame???? lit get creative and dont copy people if u cant even do it properly.. it aint funny bruh
+<p align = "center">
+
+<img src="https://file.garden/Z1SZxHBTpxsvkwdR/hrdhd.png"/>
+</p>
+
+
+<div id="text" align="center">
 
 
 ### **don't　<ins>you</ins>　want　to?**
