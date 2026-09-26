@@ -1,7 +1,7 @@
 <div id="text" align="center">
 
 
-mostly afk, w2i!
+mostly afk, w2i!<br/>
 <sup>polish/english speaking</sup>
 <br/>
 
