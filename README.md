@@ -1,8 +1,8 @@
 <div id="text" align="center">
 
 
-### **don't　<ins>you</ins>　want　to?**
-<sup>don't　you　want　to　be　the　<ins>one?</ins></sup>
+mostly afk, w2i!
+<sup>polish/english speaking</sup>
 <br/>
 
 <p align = "center">
