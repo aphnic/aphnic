@@ -13,4 +13,4 @@ mostly afk, w2i!<br/>
 
 
 <p align = "center">
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mvmvjffk4diyl4atq5fpynirli&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0c0c0c&interchange=false&profanity=false&bar_color=b5b5b5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"/>
+<img src="https://file.garden/Z1SZxHBTpxsvkwdR/jfhjg.png"width="400"/>
